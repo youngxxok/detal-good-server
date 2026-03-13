@@ -1,0 +1,1 @@
+# detal-good-server
